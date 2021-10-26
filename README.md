@@ -1,0 +1,1 @@
+Generally contains varied documents including routine notes associated with different projects.
